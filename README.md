@@ -1,0 +1,1 @@
+# SpinelScanner4JPTV
